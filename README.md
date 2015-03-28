@@ -1,7 +1,12 @@
 # philosophy club
 @tkellen asked me to do a philosophy thing with him. this is where that thing will live.
 
+this is a rip off of a class that i took at [wesleyan university](http://www.wesleyan.edu).
+shout out to [professor joseph rouse](http://jrouse.blogs.wesleyan.edu/). <3 
+
 ## Reading Schedule
+i did this from memory but i just found the class syllabus so this is gonna change soon, i.e.
+get more detailed :)
 
 - Immanuel Kant (1724-1804)
   - An Answer to the Question: What is Enlightenment? (1784)
