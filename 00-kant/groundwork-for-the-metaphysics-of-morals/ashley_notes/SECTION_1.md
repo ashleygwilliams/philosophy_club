@@ -11,6 +11,23 @@
 6. Good will creates purpose
 7. Purpose(Reason) is opposed to Happiness(Instinct)
 
+A. Duty is the action by which moral worth is realized
+B. Moral worth is valued by MAXIM not ENDS/MEANS
+
+C. Duty is the necessity to do an action from respect for law.
+
+8. Law is Reason derived Purpose, this is why we respect law, this is why law can be commanded
+9. To act with Good will is to have Pure Respect for Law
+10. This Pure Respect for Pure Law is our Maxim
+
+11. I SHOULD ACT IN ONLY SUCH A WAY THAT I WOULD ALSO WILL THAT MY ACTIONS BE MADE UNIVERSAL LAW.
+  
+12. THE WAY I FEEL AND THE WAY I SHOULD ACT ARE IN A CONFLICT I NEED TO RESOLVE.
+
+THEREFORE:
+We must now turn from common sense to philosophy on practical grounds to critique our reason
+in the interest of deriving authority to prove we are correct
+
 ## NOTES
 
 - The only purely good thing is GOOD WILL
